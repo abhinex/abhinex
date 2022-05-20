@@ -7,3 +7,4 @@
 - 📫 How to reach me: instagram - abhishekdash26
 - 😄 Pronouns: prounouns as your wish.
 - ⚡ Fun fact: I spend almost 4 hours watching anime everyday.
+- profile.gif
